@@ -1,4 +1,4 @@
-<p align="left">Hello mother fuker, you see me bsdk</p>
+<p align="left">Keep moving forward, for every step shapes a stronger tomorrow.</p>
 
 ###
 
